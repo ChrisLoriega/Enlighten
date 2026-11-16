@@ -1,4 +1,4 @@
-AMELIA & JAMES — OFFLINE WEDDING WEBSITE
+Angielina and Francis — OFFLINE WEDDING WEBSITE
 
 Open index.html in a modern browser. No internet connection or installation is required.
 
